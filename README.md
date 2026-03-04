@@ -80,7 +80,3 @@
 - Identify growth opportunities
 - Optimize pricing and discount strategies
 - Improve product and regional performance
-
-
-
-If you want, I can also give you:
